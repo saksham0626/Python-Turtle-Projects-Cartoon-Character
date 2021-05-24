@@ -13,3 +13,9 @@
 [Doraemon ![Go and search on youtube "Saksham Aggarwal"](https://i.ytimg.com/vi/nXEQY1nz4tE/hqdefault.jpg?sqp=-oaymwEcCPYBEIoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLCwHuFWGyVJXunk4jAX1VdQz281CA)](https://youtu.be/nXEQY1nz4tE)
 
 ***
+[Pikachu ![Go and search on youtube "Saksham Aggarwal"](https://i.ytimg.com/vi/aoE0OqIoJXA/hqdefault.jpg?sqp=-oaymwEcCPYBEIoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLChFt_B_t9mz4u9iF63wMJzGUddew)](https://youtu.be/aoE0OqIoJXA)
+
+***
+[Shinchan ![Go and search on youtube "Saksham Aggarwal"](https://i.ytimg.com/an_webp/qMIfuza2PWM/mqdefault_6s.webp?du=3000&sqp=CIj7rYUG&rs=AOn4CLABRuUZkmchWl8PWnKFlOYzgCq85A)](https://youtu.be/qMIfuza2PWM)
+
+***
